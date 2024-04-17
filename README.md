@@ -6,4 +6,4 @@
 ### - 💬 Ask me about ... nothing.
 ### - 📫 How to reach me: ... it's impossible.
 ### - 😄 Pronouns: ... he/him.
-### - ⚡ Fun fact: ... 77 + 33 = 100
+### - ⚡ Fun fact: ... life is meaningless.
